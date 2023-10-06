@@ -17,13 +17,7 @@ Breakaan maar maar tire di main cheekh kad da
 Sare loki takde we ki hogeya, lagda we aj mera dil
 Ruk gya, unu main puchda
 
-[Chorus]
-Ni gaddi sadi behja ni jattiye
-Ni door tenu lehja, we adiye
-Ni woofer tu meri, meri
-Main tera amplifier, fier
-Ni gaddi sadi behja ni jattiye
-Ni door tenu lehja, we adiye
+ we adiye
 Ni woofer tu meri, meri
 Main tera amplifier, fier
 </p>
