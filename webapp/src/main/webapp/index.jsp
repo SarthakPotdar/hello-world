@@ -11,15 +11,9 @@
 
 Kaaliyan baariyan ve gaddiyaan nu main lawaan
 Speed main 220 di chalaan
-Police de samne main, nai, rukda
-I'm a night rider
-Breakaan maar maar tire di main cheekh kad da
-Sare loki takde we ki hogeya, lagda we aj mera dil
-Ruk gya, unu main puchda
+Police de samne main,
 
- we adiye
-Ni woofer tu meri, meri
-Main tera amplifier, fier
+<h1> helllo   mother fluckers !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!</h1>
 </p>
 
 
